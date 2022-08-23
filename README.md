@@ -1,2 +1,2 @@
 # Perfil-académico
-! [] (oceano.jpg)
+![](oceano.jpg)
