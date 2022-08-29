@@ -1,6 +1,6 @@
 # Perfil-Académico
 ![Ligia limpiando semilas](https://user-images.githubusercontent.com/111821585/187286949-812ff0a5-a2a0-451d-86b7-251b23b4c142.jpg)
-<img src="[mifoto.jpg](https://user-images.githubusercontent.com/111821585/187286949-812ff0a5-a2a0-451d-86b7-251b23b4c142.jpg)" width="100" height="100" />
+<img src="https://user-images.githubusercontent.com/111821585/187286949-812ff0a5-a2a0-451d-86b7-251b23b4c142.jpg" width="100" height="100" />
 
 **Nombre**: Ligia Susana Espinoza Benavides  
 **Profesión**: Ingeniera Ambiental y agricultora Ecológica  certificada como maestra de nivel avanzado en CULTIVEBIOINTENSIVAMENTE  
