@@ -9,13 +9,16 @@
 ## Areas de Interés:  
 * Agricultura Ecológica sustentable
 * Manejo integrado de cuencas hidrograficas y ecohidrología
+* Conservación de bosques y aguas.
 * Autogestión y economía ambiental circular comunitaria
 * Agroecoturismo sustentable.
+* Semillas de polinización Abierta
 ## Formación Académica:  
-_Ingeniera en calidad ambiental_ (UCA,managua 2005), con formación en Evaluación y reducción de la contaminación en Ambientes acuáticos (Buenos Aires, 2005;  
+_Ingeniera en calidad ambiental_ (UCA,managua 2005), con formación en Evaluación y reducción de la contaminación en Ambientes acuáticos (Buenos Aires, 2005);  
 _Especialista en Soberanía y Seguridad alimentaria y nutricional_, (UNAN Managua 2013);
-_Instructora en agricultura biointensiva formada por ECOPOL México (desde 2011) y Ecology Action en California (2014) como becaria estudiante interna de 6 meses en John Jeavons Center.  (http://www.growbiointensive.org/Enewsletter/Winter2015/Interns2014.html). 
+_Entrenamiento como agricultora ecológica e Instructora en agricultura biointensiva formada por ECOPOL México (desde 2011) y Ecology Action en California (2014) como becaria estudiante interna de 6 meses en John Jeavons Center.  (http://www.growbiointensive.org/Enewsletter/Winter2015/Interns2014.html). 
 ## Cursos Impartidos:  
-Asignaturas de pregrado en Desarrollo Sostenible y Medio Ambiente, Seguridad Alimentaria y Nutricional. Talleres en el Método de Cultivo Biointensivo, nivel básico, nivel intermedio, nivel avanzado.
+* Asignaturas de pregrado en: Desarrollo Sostenible y Medio Ambiente, Seguridad Alimentaria y Nutricional. 
+* Más de 20 Talleres en el Método de Cultivo Biointensivo de nivel básico, intermedio y avanzado.
 ## Publicaciones:  
-El Desarrollo Agroecológico Nacional frente al Cambio Climático y medio  de Soberanía Alimentaria.  Revista del GISSAN: Ahora es tiempo de Soberanía Alimentaria. Edición No. 6 Noviembre de 2009.
+El Desarrollo Agroecológico Nacional frente al Cambio Climático y medio  de Soberanía Alimentaria. Revista del GISSAN: Ahora es tiempo de Soberanía Alimentaria. Edición No. 6 Noviembre de 2009.
