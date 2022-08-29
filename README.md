@@ -4,12 +4,12 @@
 **Profesión**: Ingeniera Ambiental y agricultora Ecológica  certificada como maestra de nivel avanzado en CULTIVEBIOINTENSIVAMENTE  
 **Contacto**: ligiasusanae@gmail.com
 ![foto perfil 2](https://user-images.githubusercontent.com/111821585/187013030-e9f1e49c-0c4d-4d92-884a-6a44ad6f47df.jpeg)
-## Areas de Interés: 
+## Areas de Interés:     
 Agricultura Ecológica sustentable, Manejo integrado de cuencas hidrograficas, ecohidrología, autogestión y economía ambiental circular comunitaria, agroecoturismo sustentable.
-## Formación Académica:
+## Formación Académica:  
 * _Ingeniera en calidad ambiental_, con formación en Evaluación y reducción de la contaminación en Ambientes acuáticos (Buenos Aires 2005); * _especialista en Soberanía y Seguridad alimentaria y nutricional_; * _Agricultora e instructora certificada en niveL avanzado en agricultura biointensiva_ formada por ECOPOL México (desde 2011) y Ecology Action en California (2014) como becaria estudiante interna de 6 meses en John Jeavons Center.  [ver enlace a revista](http://www.growbiointensive.org/Enewsletter/Winter2015/Interns2014.html). 
-## Cursos Impartidos: 
+## Cursos Impartidos:   
 * Asignaturas de pregrado en Desarrollo Sostenible y Medio Ambiente, Seguridad Alimentaria y Nutricional. 
 * Mas de 20 Talleres en el Método de Cultivo Biointensivo, nivel básico, nivel intermedio, nivel avanzado.
-## Publicaciones: 
+## Publicaciones:   
 El Desarrollo Agroecológico Nacional frente al Cambio Climático y medio  de Soberanía Alimentaria.  Revista del GISSAN: Ahora es tiempo de Soberanía Alimentaria. Edición No. 6, Nicaragua, Noviembre de 2009.
