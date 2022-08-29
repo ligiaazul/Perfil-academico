@@ -10,5 +10,7 @@
 Agricultura Ecológica sustentable, Manejo integrado de cuencas hidrograficas, ecohidrología, autogestión y economía ambiental circular comunitaria, agroecoturismo sustentable.
 ## Formación Académica:  
 Ingeniera en calidad ambiental, con formación en Evaluación y reducción de la contaminación en Ambientes acuáticos (Buenos Aires 2005); especialista en Soberanía y Seguridad alimentaria y nutricional; instructora en agricultura biointensiva formada por ECOPOL México (desde 2011) y Ecology Action en California (2014) como becaria estudiante interna de 6 meses en John Jeavons Center.  (http://www.growbiointensive.org/Enewsletter/Winter2015/Interns2014.html). 
-## Cursos Impartidos: Asignaturas de pregrado en Desarrollo Sostenible y Medio Ambiente, Seguridad Alimentaria y Nutricional. Talleres en el Método de Cultivo Biointensivo, nivel básico, nivel intermedio, nivel avanzado.
-## Publicaciones: El Desarrollo Agroecológico Nacional frente al Cambio Climático y medio  de Soberanía Alimentaria.  Revista del GISSAN: Ahora es tiempo de Soberanía Alimentaria. Edición No. 6 Noviembre de 2009.
+## Cursos Impartidos:  
+Asignaturas de pregrado en Desarrollo Sostenible y Medio Ambiente, Seguridad Alimentaria y Nutricional. Talleres en el Método de Cultivo Biointensivo, nivel básico, nivel intermedio, nivel avanzado.
+## Publicaciones:  
+El Desarrollo Agroecológico Nacional frente al Cambio Climático y medio  de Soberanía Alimentaria.  Revista del GISSAN: Ahora es tiempo de Soberanía Alimentaria. Edición No. 6 Noviembre de 2009.
